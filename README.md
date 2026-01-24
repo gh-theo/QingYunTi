@@ -1,10 +1,10 @@
-# 青云梯(QingYunTi)官网注册地址｜真实测速｜价格与套餐详解
+# 青云梯(QingYunTi)VPN官网注册地址｜真实测速｜价格与套餐详解
 
-## 青云梯(QingYunTi)官网注册地址（稳定高速｜真实测速｜价格详解）
+## 青云梯(QingYunTi)VPN官网注册地址（稳定高速｜真实测速｜价格详解）
 
 **最便宜的订阅有8元 60g/月(年付)。**
 
-**点击购买👉👉👉** [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt) 
+**点击购买👉👉👉** [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt) 
 
 **当前可用的官方注册地址，稳定不跳转、不失效。**
 
@@ -28,7 +28,7 @@
 - 海外团队，专业运营，全天候维护。
 - 可为电商游戏直播等行业私人订制专属线路套餐
 
-## 青云梯(QingYunTi)价格与套餐对比（哪一档最划算？）
+## 青云梯(QingYunTi)VPN价格与套餐对比（哪一档最划算？）
 
 **支付方式** 支付宝 微信支付 USDT
 
@@ -38,20 +38,20 @@
 
 |   套餐类型   |  流量/月  | 月付 | 季付 | 半年付 | 年付  | 设备限制 |                                                    套餐购买                                                    |
 | :----------: | :-------: | :--: | :--: | :----: | :---: | :------: | :------------------------------------------------------------------------------------------------------------: |
-| **年付小包** |  **60G**  |  -   |  -   |   -    |  ¥96  |  无限制  | [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt)  |
-|   **VIP1**   | **150G**  | ¥25  | ¥67  |  ¥127  | ¥240  |  无限制  | [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt)  |
-|   **VIP2**   | **300G**  | ¥45  | ¥121 |  ¥229  | ¥432  |  无限制  | [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt)  |
-|   **VIP3**   | **600G**  | ¥85  | ¥229 |  ¥433  | ¥816  |  无限制  | [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt)  |
-|   **VIP4**   | **1000G** | ¥150 | ¥400 |  ¥750  | ¥1360 |  无限制  | [青云梯(QingYunTi)官网注册地址](https://itheo.top/qyt)  |
+| **年付小包** |  **60G**  |  -   |  -   |   -    |  ¥96  |  无限制  | [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt)  |
+|   **VIP1**   | **150G**  | ¥25  | ¥67  |  ¥127  | ¥240  |  无限制  | [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt)  |
+|   **VIP2**   | **300G**  | ¥45  | ¥121 |  ¥229  | ¥432  |  无限制  | [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt)  |
+|   **VIP3**   | **600G**  | ¥85  | ¥229 |  ¥433  | ¥816  |  无限制  | [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt)  |
+|   **VIP4**   | **1000G** | ¥150 | ¥400 |  ¥750  | ¥1360 |  无限制  | [青云梯(QingYunTi)VPN官网注册地址](https://itheo.top/qyt)  |
 
 
-## 青云梯(QingYunTi)真实测速图（高峰期表现实测）
+## 青云梯(QingYunTi)VPN真实测速图（高峰期表现实测）
 
-[青云梯(QingYunTi)真实测速图](https://doc.theojs.cn/serve/airport/qingyunti#%E9%9D%92%E4%BA%91%E6%A2%AF-qingyunti-%E7%9C%9F%E5%AE%9E%E6%B5%8B%E9%80%9F%E5%9B%BE-%E9%AB%98%E5%B3%B0%E6%9C%9F%E8%A1%A8%E7%8E%B0%E5%AE%9E%E6%B5%8B)
+[青云梯(QingYunTi)VPN真实测速图](https://doc.theojs.cn/serve/airport/qingyunti#青云梯-qingyunti-vpn真实测速图-高峰期表现实测)
 
 ---
 
-- [🔥🔥🔥2026年便宜好用的翻墙机场推荐评测(长期更新 欢迎推荐)](https://doc.theojs.cn/serve/airport/summary)
+- [🔥🔥🔥2026年便宜好用的翻墙VPN机场推荐评测(长期更新 欢迎推荐)](https://doc.theojs.cn/serve/airport/summary)
 - [稳定好用的流媒体合租平台推荐(长期更新 欢迎推荐)](https://doc.theojs.cn/serve/sharing/account-sharing-guide)
 - [AI 使用教程汇总｜ChatGPT、Gemini 新手入门与国内使用指南](https://doc.theojs.cn/ai/summary)
 - [国外接码平台 Hero SMS 评测（稳定 · 低价 · 高成功率）](https://doc.theojs.cn/serve/code/sms)
